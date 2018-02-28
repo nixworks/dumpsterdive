@@ -1,2 +1,1 @@
-# dumpsterdive
-мусор Бен дайвинг | poubelle Bin plongée | dumpstardive
+# dumpsterdive | мусор Бен дайвинг | poubelle Bin plongée
